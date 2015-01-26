@@ -2,6 +2,6 @@
 
 Lab Assignment #2
 
-ivonne Ramirez 
+Ivonne Ramirez 
 
 1/25/15
